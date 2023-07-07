@@ -14,3 +14,7 @@
 
 # [mathi ensalada epic moment](https://www.dropbox.com/s/stamr60g6rm1kvb/mathi%20ensalada%20epic%20moment.osk?dl=0)
 ![mathi_ensalada_epic_moment](https://i.imgur.com/T5wSp1u.png)
+
+
+# [epic moment v4 - DT](https://cdn.discordapp.com/attachments/929077346064023562/1126932599747661864/epic_moment_v4_-_dt.osk)
+![epic_moment_v4](https://i.imgur.com/RkmwevV.png)
